@@ -5,7 +5,7 @@ Even if you’re not familiar with the stock market or don’t have a broker, do
 
 - 🌱 I’m currently in Maryland 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...Text 2096492999
+- 📫 How to reach me ...Text 2096592999
   
 
 <!---
